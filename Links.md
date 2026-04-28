@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 15:06 IR
+- 🎬 [Our Minds Are Weirder than You Think.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Our%20Minds%20Are%20Weirder%20than%20You%20Think.mp4) `58.1MB`
+
+---
+
+
 ### 📅 2026-04-28 15:00 IR
 - 🎬 [The World is not Ready....mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/The%20World%20is%20not%20Ready....mp4) `76.8MB`
 
