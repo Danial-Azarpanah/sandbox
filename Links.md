@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 17:15 IR
+- 🎬 [New Troop & Defense Levels - Update Sneak Peek!.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/New%20Troop%20%26%20Defense%20Levels%20-%20Update%20Sneak%20Peek%21.mp4) `62.8MB`
+
+---
+
+
 ### 📅 2026-04-28 17:08 IR
 - 🎬 [Glass is glass.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Glass%20is%20glass.mp4) `16.9MB`
 
