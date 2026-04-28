@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 16:34 IR
+- 🎬 [Galaxy S26 Ultra vs. iPhone 17 Pro Max Speed Test!.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Galaxy%20S26%20Ultra%20vs.%20iPhone%2017%20Pro%20Max%20Speed%20Test%21.mp4) `34.2MB`
+
+---
+
+
 ### 📅 2026-04-28 16:21 IR
 - 🎬 [So This is Peak Smartphone.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/So%20This%20is%20Peak%20Smartphone.mp4) `45.5MB`
 
