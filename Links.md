@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 14:13 IR
+- 🎬 [She Said I Couldn't Replace AI... So I Did..mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/She%20Said%20I%20Couldn%27t%20Replace%20AI...%20So%20I%20Did..mp4) `50.0MB`
+
+---
+
+
 ### 📅 2026-04-28 13:58 IR
 - 🎬 [Subaru Doesn't Want to Make EVs..mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Subaru%20Doesn%27t%20Want%20to%20Make%20EVs..mp4) `74.3MB`
 
