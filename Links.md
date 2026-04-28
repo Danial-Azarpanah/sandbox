@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 13:58 IR
+- 🎬 [Subaru Doesn't Want to Make EVs..mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Subaru%20Doesn%27t%20Want%20to%20Make%20EVs..mp4) `74.3MB`
+
+---
+
+
 ### 📅 2026-04-28 13:29 IR
 - 🎬 [This new iPhone is different than the rest....mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/This%20new%20iPhone%20is%20different%20than%20the%20rest....mp4) `66.4MB`
 
