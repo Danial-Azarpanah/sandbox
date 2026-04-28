@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 12:51 IR
+- 🎬 [Apple Education： Ready for every learning opportunity.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Apple%20Education%EF%BC%9A%20Ready%20for%20every%20learning%20opportunity.mp4) `7.2MB`
+
+---
+
+
 ### 📅 2026-04-28 12:47 IR
 - 🎬 [I Tested Every Flagship Earbuds Combo So You Don't Have To.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/I%20Tested%20Every%20Flagship%20Earbuds%20Combo%20So%20You%20Don%27t%20Have%20To.mp4) `61.9MB`
 
