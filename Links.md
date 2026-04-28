@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 13:25 IR
+- 🎬 [گپی در مورد امنیت استفاده از بله بخصوص برای خارج نشین‌ها.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/%DA%AF%D9%BE%DB%8C%20%D8%AF%D8%B1%20%D9%85%D9%88%D8%B1%D8%AF%20%D8%A7%D9%85%D9%86%DB%8C%D8%AA%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%A7%D8%B2%20%D8%A8%D9%84%D9%87%20%D8%A8%D8%AE%D8%B5%D9%88%D8%B5%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%AE%D8%A7%D8%B1%D8%AC%20%D9%86%D8%B4%DB%8C%D9%86%E2%80%8C%D9%87%D8%A7.mp4) `52.5MB`
+
+---
+
+
 ### 📅 2026-04-28 13:07 IR
 - 🗜️ [Gadget Prices Are Getting Ridiculous.mp4.zip](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Gadget%20Prices%20Are%20Getting%20Ridiculous.mp4.zip) `25.9MB`
 
