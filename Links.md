@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-28 12:59 IR
+- 🎬 [Lenovo Legion 5i (2026) – The Gaming Laptop Sweet Spot!.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Lenovo%20Legion%205i%20%282026%29%20%E2%80%93%20The%20Gaming%20Laptop%20Sweet%20Spot%21.mp4) `67.4MB`
+
+---
+
+
 ### 📅 2026-04-28 12:53 IR
 - 🎬 [I Bought A Leica (Phone).mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/I%20Bought%20A%20Leica%20%28Phone%29.mp4) `84.7MB`
 
