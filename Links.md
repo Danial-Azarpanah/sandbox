@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-03 22:03 IR
+- 🎬 [Introducing Galaxy Book6 Enterprise Edition ｜ Galaxy AI ｜ Samsung.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Introducing%20Galaxy%20Book6%20Enterprise%20Edition%20%EF%BD%9C%20Galaxy%20AI%20%EF%BD%9C%20Samsung.mp4) `12.6MB`
+
+---
+
+
 ### 📅 2026-05-03 21:45 IR
 - 🎬 [My Take on The New Apple.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/My%20Take%20on%20The%20New%20Apple.mp4) `44.9MB`
 
