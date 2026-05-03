@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-03 21:45 IR
+- 🎬 [My Take on The New Apple.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/My%20Take%20on%20The%20New%20Apple.mp4) `44.9MB`
+
+---
+
+
 ### 📅 2026-05-03 21:17 IR
 - 🎬 [Motorola Razr Ultra 2026： First Look From A Real User.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Motorola%20Razr%20Ultra%202026%EF%BC%9A%20First%20Look%20From%20A%20Real%20User.mp4) `76.7MB`
 
