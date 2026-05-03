@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-03 22:30 IR
+- 🎬 [How is this OLED Monitor SO CHEAP!？.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/How%20is%20this%20OLED%20Monitor%20SO%20CHEAP%21%EF%BC%9F.mp4) `56.9MB`
+
+---
+
+
 ### 📅 2026-05-03 22:23 IR
 - 🎬 [Samsung is Beating Apple to its Next Phone Again.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Samsung%20is%20Beating%20Apple%20to%20its%20Next%20Phone%20Again.mp4) `28.0MB`
 
