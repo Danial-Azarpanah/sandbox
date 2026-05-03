@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-03 22:23 IR
+- 🎬 [Samsung is Beating Apple to its Next Phone Again.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Samsung%20is%20Beating%20Apple%20to%20its%20Next%20Phone%20Again.mp4) `28.0MB`
+
+---
+
+
 ### 📅 2026-05-03 22:03 IR
 - 🎬 [Introducing Galaxy Book6 Enterprise Edition ｜ Galaxy AI ｜ Samsung.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Introducing%20Galaxy%20Book6%20Enterprise%20Edition%20%EF%BD%9C%20Galaxy%20AI%20%EF%BD%9C%20Samsung.mp4) `12.6MB`
 
