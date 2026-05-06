@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-06 18:40 IR
+- 🎬 [Is Apple Making Smartglasses？.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/Is%20Apple%20Making%20Smartglasses%EF%BC%9F.mp4) `76.7MB`
+
+---
+
+
 ### 📅 2026-05-06 18:21 IR
 - 🎬 [GERMANY IS OVER.mp4](https://github.com/Danial-Azarpanah/sandbox/raw/main/dl/GERMANY%20IS%20OVER.mp4) `59.7MB`
 
